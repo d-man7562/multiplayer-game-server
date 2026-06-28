@@ -16,5 +16,5 @@ Do not worry about setting up map, everything is automated. If you want to add y
 
 
 
-I hope you enjoy this game. My mom and I had a blast playing this game (online!) for the first time today just now. 
+I hope you enjoy this game. 
 
